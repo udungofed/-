@@ -1,2 +1,2 @@
 # -
-With God Together
+With God Together, even with Money Together.
